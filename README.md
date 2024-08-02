@@ -1,4 +1,4 @@
-## Releases: https://github.com/FANGO55/Through-The-Wind/releases
+## Download Here: https://github.com/FANGO55/Through-The-Wind/releases
 ## Discord: https://discord.gg/tM4Ew2qbJa
 ## YouTube: https://www.youtube.com/@fangodlrs/featured
 ## Bilibili: https://space.bilibili.com/3493140048644742
